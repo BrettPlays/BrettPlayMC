@@ -6,4 +6,4 @@
 
   ### You can find me on [Twitter](https://twitter.com/BrettPlayMC), [YouTube](https://www.youtube.com/UnseenVids), or [Discord](https://discord.com/) @ BrettPlays.
 
-<h1 align="center">Thank You for checking out my page, stay cool!</h1>
+<h1 align="center">Thank You for checking out my page, stay epic!</h1>
